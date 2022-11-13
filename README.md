@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MarcosRama
+- 👀 I’m interested in softer
+- 🌱 I’m currently learning TI
+- 📫 How to reach me ...
